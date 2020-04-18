@@ -295,15 +295,15 @@ CD内容目录(TOC)
  
 AccurateRip总结报告
  
-音轨序号  1  不能精确校验 (可信的 2)  [C65FE6D0], AccurateRip返回结果 [C732D3D5]  (AR v2)
-音轨序号  2  不能精确校验 (可信的 2)  [96BE2FEA], AccurateRip返回结果 [44ED8924]  (AR v2)
-音轨序号  3  不能精确校验 (可信的 2)  [FF5D6DDB], AccurateRip返回结果 [F2F6D699]  (AR v2)
-音轨序号  4  不能精确校验 (可信的 2)  [6363B1D8], AccurateRip返回结果 [13B7BB84]  (AR v2)
-音轨序号  5  不能精确校验 (可信的 2)  [EE46D983], AccurateRip返回结果 [7956E4C7]  (AR v2)
-音轨序号  6  不能精确校验 (可信的 2)  [552B2A27], AccurateRip返回结果 [E779DA39]  (AR v2)
-音轨序号  7  不能精确校验 (可信的 2)  [01BA7C47], AccurateRip返回结果 [E63CA6ED]  (AR v2)
-音轨序号  8  不能精确校验 (可信的 2)  [C048B2C5], AccurateRip返回结果 [B652B6DD]  (AR v2)
-音轨序号  9  不能精确校验 (可信的 2)  [61916B6C], AccurateRip返回结果 [48BC9D9C]  (AR v2)
+      音轨序号  1  不能精确校验 (可信的 2)  [C65FE6D0], AccurateRip返回结果 [C732D3D5]  (AR v2)
+      音轨序号  2  不能精确校验 (可信的 2)  [96BE2FEA], AccurateRip返回结果 [44ED8924]  (AR v2)
+      音轨序号  3  不能精确校验 (可信的 2)  [FF5D6DDB], AccurateRip返回结果 [F2F6D699]  (AR v2)
+      音轨序号  4  不能精确校验 (可信的 2)  [6363B1D8], AccurateRip返回结果 [13B7BB84]  (AR v2)
+      音轨序号  5  不能精确校验 (可信的 2)  [EE46D983], AccurateRip返回结果 [7956E4C7]  (AR v2)
+      音轨序号  6  不能精确校验 (可信的 2)  [552B2A27], AccurateRip返回结果 [E779DA39]  (AR v2)
+      音轨序号  7  不能精确校验 (可信的 2)  [01BA7C47], AccurateRip返回结果 [E63CA6ED]  (AR v2)
+      音轨序号  8  不能精确校验 (可信的 2)  [C048B2C5], AccurateRip返回结果 [B652B6DD]  (AR v2)
+      音轨序号  9  不能精确校验 (可信的 2)  [61916B6C], AccurateRip返回结果 [48BC9D9C]  (AR v2)
  
 没有音轨可被精确校验
 你所持CD与数据库中的不同
