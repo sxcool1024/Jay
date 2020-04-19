@@ -19,7 +19,7 @@
 * 3、[2002-拍档周杰伦&方文山联手创作精选.zip](/2002-拍档周杰伦&方文山联手创作精选[台湾]/README.md)
 * 4、[2003-寻找周杰伦EP.zip](/2003-寻找周杰伦EP[台湾]/README.md)
 * 5、[2004-无与伦比演唱会2CD.zip](/2004-无与伦比演唱会2CD[台湾]/README.md)
-* 6、[2005-INITIALJJAYCHOUGREATESTHITS[初回生限定盘][日本版].zip](/2005-INITIALJJAYCHOUGREATESTHITS[初回生限定盘][日本版]/README.md)
+* 6、[2005-INITIALJJAYCHOUGREATESTHITS[初回生限定盘][日本版].zip](/2005-[初回生限定盘][日本版]/README.md)
 * 7、[2006-黄金甲EP.zip](/2006-黄金甲EP[台湾]/README.md)
 * 8、[2006-霍元甲EP.zip](/2006-霍元甲EP[台湾]/README.md)
 * 9、[2007-不能说的秘密电影原声.zip](/2007-不能说的秘密电影原声[台湾]/README.md)
