@@ -30,5 +30,4 @@
 * 12、[2013-天台电影原声带.zip](/2013-天台电影原声带[台湾]/README.md)
 ***
 # 电报交流群：https://t.me/sxcool1024g
-![扫码进电报群](https://www.nsaimg.com/2020/04/17/2a6cb36afc25f.jpg "扫码进电报群")
 [回到顶部](#readme)
