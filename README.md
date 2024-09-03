@@ -29,5 +29,5 @@
 * 11、[2011-2010超时代演唱会2CD[深藏版][香港].zip](/2011-2010超时代演唱会2CD[深藏版][香港]/README.md)
 * 12、[2013-天台电影原声带.zip](/2013-天台电影原声带[台湾]/README.md)
 ***
-# 电报交流群：https://t.me/sxcool1024gr
+# 电报交流群：https://t.me/sxcoolchannel
 [回到顶部](#readme)
