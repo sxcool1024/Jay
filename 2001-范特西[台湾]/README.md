@@ -36,15 +36,19 @@
 10.	安静	词：周杰伦	曲：钟兴民	时长：5:30
 
 ------------
-![范特西]( https://www.nsaimg.com/2020/04/18/cb05bbcf340d1.jpg  "范特西的介绍")
-![范特西]( https://www.nsaimg.com/2020/04/18/69cd7278b2ad6.jpg  "范特西的介绍")
-![范特西]( https://www.nsaimg.com/2020/04/18/2e975c42377cc.jpg  "范特西的介绍")
-![范特西]( https://www.nsaimg.com/2020/04/18/2fe0fe599b655.jpg  "范特西的介绍")
-![范特西]( https://www.nsaimg.com/2020/04/18/36a19ecf30787.jpg  "范特西的介绍")
-![范特西]( https://www.nsaimg.com/2020/04/18/c54a067fc9982.jpg  "范特西的介绍")
-![范特西]( https://www.nsaimg.com/2020/04/18/bbe562cb7aa83.jpg  "范特西的介绍")
-![范特西]( https://www.nsaimg.com/2020/04/18/0adb5830aeefe.jpg  "范特西的介绍")
-![范特西]( https://www.nsaimg.com/2020/04/18/bbd1d57da6534.jpg  "范特西的介绍")
+![back](https://23img.com/i/2025/10/02/s68nyl.jpg  "范特西的介绍")
+![cover](https://23img.com/i/2025/10/02/s68t39.jpg  "范特西的介绍")
+![disc](https://23img.com/i/2025/10/02/s69666.jpg  "范特西的介绍")
+![内1](https://23img.com/i/2025/10/02/s69kfn.jpg  "范特西的介绍")
+![内2](https://23img.com/i/2025/10/02/s69u12.jpg  "范特西的介绍")
+![内3](https://23img.com/i/2025/10/02/s6j4ia.jpg  "范特西的介绍")
+![内4](https://23img.com/i/2025/10/02/s6jr65.jpg  "范特西的介绍")
+![内5](https://23img.com/i/2025/10/02/s6kw95.jpg  "范特西的介绍")
+![内6](https://23img.com/i/2025/10/02/s6lf15.jpg  "范特西的介绍")
+![内7](https://23img.com/i/2025/10/02/s6luh8.jpg  "范特西的介绍")
+![内8](https://23img.com/i/2025/10/02/s6lvjf.jpg  "范特西的介绍")
+![内9](https://23img.com/i/2025/10/02/s6mc5p.jpg  "范特西的介绍")
+![内10](https://23img.com/i/2025/10/02/s6mopo.jpg  "范特西的介绍")
 
 ------------
 Exact Audio Copy V0.99 prebeta 5 from 4. May 2009
