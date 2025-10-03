@@ -45,20 +45,20 @@
 　　最新专辑名称“魔杰座”，代表的是音乐与魔术的星座，“魔杰座”有多个层面的意义，除了周杰伦原本就属于魔羯座之外，他变魔术让音乐变幻无穷，除了有一首专以“魔术”为主题的歌曲，其他音乐内容更是相当丰富，多样曲风令人目眩神迷！而超乎感动的全新“杰作”，每一首都是他的精彩“杰作”！也让喜爱周杰伦音乐的人重新归类自己的星座。即将在10月9日推出的“魔杰座”在包装上将推出两种版本，分别有“铁盒酷炫版”与“纸盒珍藏版”，“铁盒酷炫版”加赠骑士卡贴纸（悠游卡size等卡片可使用），让歌迷有不同的收藏选择。
 
 ------------
-![魔杰座]( https://www.nsaimg.com/2020/04/18/b254ed693a9f0.jpg  "魔杰座的介绍")
-![魔杰座]( https://www.nsaimg.com/2020/04/18/4e52f902d9ec7.jpg  "魔杰座的介绍")
-![魔杰座]( https://www.nsaimg.com/2020/04/18/7a305e6fc6eef.jpg  "魔杰座的介绍")
-![魔杰座]( https://www.nsaimg.com/2020/04/18/be561a566691e.jpg  "魔杰座的介绍")
-![魔杰座]( https://www.nsaimg.com/2020/04/18/2567e44dfa744.jpg  "魔杰座的介绍")
-![魔杰座]( https://www.nsaimg.com/2020/04/18/40da017bfa7e3.jpg  "魔杰座的介绍")
-![魔杰座]( https://www.nsaimg.com/2020/04/18/033fb56ed924b.jpg  "魔杰座的介绍")
-![魔杰座]( https://www.nsaimg.com/2020/04/18/6dd86ee011481.jpg  "魔杰座的介绍")
-![魔杰座]( https://www.nsaimg.com/2020/04/18/0a96f22754b9a.jpg  "魔杰座的介绍")
-![魔杰座]( https://www.nsaimg.com/2020/04/18/e869062169f99.jpg  "魔杰座的介绍")
-![魔杰座]( https://www.nsaimg.com/2020/04/18/9a45b058916dc.jpg  "魔杰座的介绍")
-![魔杰座]( https://www.nsaimg.com/2020/04/18/eb2d2e3133cf7.jpg  "魔杰座的介绍")
-![魔杰座]( https://www.nsaimg.com/2020/04/18/bed185ed9333f.jpg  "魔杰座的介绍")
-![魔杰座]( https://www.nsaimg.com/2020/04/18/4852874ebc1e3.jpg  "魔杰座的介绍")
+![back](https://image.acg.lol/file/2025/10/03/back21c521a475561cbb.jpg)
+![cover](https://image.acg.lol/file/2025/10/03/coverc31e43e2c1913e7a.jpg)
+![disc](https://image.acg.lol/file/2025/10/03/disc84911cdbd3e92c9a.jpg)
+![内1](https://image.acg.lol/file/2025/10/03/11636f5f863e138a4.jpg)
+![内2](https://image.acg.lol/file/2025/10/03/2fe8af4844d96ac93.jpg)
+![内3](https://image.acg.lol/file/2025/10/03/36218f09c90cbfda3.jpg)
+![内4](https://image.acg.lol/file/2025/10/03/428c107db9d07bf64.jpg)
+![内5](https://image.acg.lol/file/2025/10/03/5bf68117b73498c98.jpg)
+![内6](https://image.acg.lol/file/2025/10/03/6da5ffb1424731974.jpg)
+![内7](https://image.acg.lol/file/2025/10/03/7956918caf50a3093.jpg)
+![内8](https://image.acg.lol/file/2025/10/03/8633150d74f7570d2.jpg)
+![内9](https://image.acg.lol/file/2025/10/03/9f2df20ebafa5e195.jpg)
+![内10](https://image.acg.lol/file/2025/10/03/10b629290aaee998f7.jpg)
+![内11](https://image.acg.lol/file/2025/10/03/11a368e76ac3b3cfdd.jpg)
 
 ------------
 Exact Audio Copy V0.99 prebeta 5 from 4. May 2009
