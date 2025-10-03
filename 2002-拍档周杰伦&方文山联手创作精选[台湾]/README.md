@@ -79,7 +79,7 @@ CD: 拍当－周杰伦&方文山联手创作精选
 ![back](https://image.acg.lol/file/2025/10/03/back71e3dc4bfbec56e1.jpg)
 ![cover](https://image.acg.lol/file/2025/10/03/cover229cd2cba2b0eef8.jpg)
 
-# [专辑下载]( https://474b.com/file/25713053-438120764)
+# [专辑下载](https://url53.ctfile.com/f/25713053-8445248943-60d2d6?p=1024)
 <br>[【回到顶部】](#readme)[【返回目录】](/README.md)
 ###### 底
 
