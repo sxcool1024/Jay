@@ -44,7 +44,8 @@
 10.	爱情废柴	词：周杰伦	曲：黄雨勋	时长：04:46
 
 ------------
-![Cover](https://image.acg.lol/file/2025/10/03/Cover.jpg)
+![v2 8bacbe9d9642ae9349f070b92ad5edfd r](https://image.acg.lol/file/2025/10/03/v2-8bacbe9d9642ae9349f070b92ad5edfd_r.png)
+![v2 62e7d6f2b9bf997d62bad4fcb237f0a1 1440w](https://image.acg.lol/file/2025/10/03/v2-62e7d6f2b9bf997d62bad4fcb237f0a1_1440w.png)
 
 # [专辑下载](https://url53.ctfile.com/f/25713053-8445073291-2bd552?p=1024)
 <br>[【回到顶部】](#readme)[【返回目录】](/README.md)
