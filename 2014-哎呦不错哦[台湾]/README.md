@@ -58,6 +58,6 @@
 ![v2 9170a2a11b4b7ddf3f4ed79c34c11da5 1440w](https://image.acg.lol/file/2025/10/03/v2-9170a2a11b4b7ddf3f4ed79c34c11da5_1440w.png)
 ![v2 c6aea4e9153fa0dbe4cc977cce62586f 1440w](https://image.acg.lol/file/2025/10/03/v2-c6aea4e9153fa0dbe4cc977cce62586f_1440w.png)
 
-# [专辑下载](https://474b.com/file/25713053-438239630)
+# [专辑下载](https://url53.ctfile.com/f/25713053-8445107306-2c36db?p=1024)
 <br>[【回到顶部】](#readme)[【返回目录】](/README.md)
 ###### 底
