@@ -55,7 +55,8 @@
 12.	听见下雨的声音	词：方文山	曲：黄雨勋	时长：04:39
 
 ------------
-![哎呦，不错哦]( https://www.nsaimg.com/2020/04/19/c3b81cc29b892.jpg  "哎呦，不错哦的介绍")
+![v2 9170a2a11b4b7ddf3f4ed79c34c11da5 1440w](https://image.acg.lol/file/2025/10/03/v2-9170a2a11b4b7ddf3f4ed79c34c11da5_1440w.png)
+![v2 c6aea4e9153fa0dbe4cc977cce62586f 1440w](https://image.acg.lol/file/2025/10/03/v2-c6aea4e9153fa0dbe4cc977cce62586f_1440w.png)
 
 # [专辑下载](https://474b.com/file/25713053-438239630)
 <br>[【回到顶部】](#readme)[【返回目录】](/README.md)
