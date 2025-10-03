@@ -36,19 +36,19 @@
 10.	安静	词：周杰伦	曲：钟兴民	时长：5:30
 
 ------------
-![back](https://23img.com/i/2025/10/02/s68nyl.jpg  "范特西的介绍")
-![cover](https://23img.com/i/2025/10/02/s68t39.jpg  "范特西的介绍")
-![disc](https://23img.com/i/2025/10/02/s69666.jpg  "范特西的介绍")
-![内1](https://23img.com/i/2025/10/02/s69kfn.jpg  "范特西的介绍")
-![内2](https://23img.com/i/2025/10/02/s69u12.jpg  "范特西的介绍")
-![内3](https://23img.com/i/2025/10/02/s6j4ia.jpg  "范特西的介绍")
-![内4](https://23img.com/i/2025/10/02/s6jr65.jpg  "范特西的介绍")
-![内5](https://23img.com/i/2025/10/02/s6kw95.jpg  "范特西的介绍")
-![内6](https://23img.com/i/2025/10/02/s6lf15.jpg  "范特西的介绍")
-![内7](https://23img.com/i/2025/10/02/s6luh8.jpg  "范特西的介绍")
-![内8](https://23img.com/i/2025/10/02/s6lvjf.jpg  "范特西的介绍")
-![内9](https://23img.com/i/2025/10/02/s6mc5p.jpg  "范特西的介绍")
-![内10](https://23img.com/i/2025/10/02/s6mopo.jpg  "范特西的介绍")
+![back](https://image.acg.lol/file/2025/10/03/back1dedea547c9ed161.jpg)
+![cover](https://image.acg.lol/file/2025/10/03/coverbbd26a25f96f6b45.jpg)
+![disc](https://image.acg.lol/file/2025/10/03/disc51f95bd0a345101e.jpg)
+![内1](https://image.acg.lol/file/2025/10/03/16ee89bbf559636db.jpg)
+![内2](https://image.acg.lol/file/2025/10/03/288d2e84b71976e56.jpg)
+![内3](https://image.acg.lol/file/2025/10/03/376832b1a8c5c9886.jpg)
+![内4](https://image.acg.lol/file/2025/10/03/42146023f3f04ab8c.jpg)
+![内5](https://image.acg.lol/file/2025/10/03/5be7c36f569aef9ee.jpg)
+![内6](https://image.acg.lol/file/2025/10/03/6c8c89eabfdebe50f.jpg)
+![内7](https://image.acg.lol/file/2025/10/03/7d0db755418ddfbcd.jpg)
+![内8](https://image.acg.lol/file/2025/10/03/83af35c526b99c7f6.jpg)
+![内9](https://image.acg.lol/file/2025/10/03/995378b7d39bb7dfe.jpg)
+![内10](https://image.acg.lol/file/2025/10/03/105b13b2e00840f54c.jpg)
 
 ------------
 Exact Audio Copy V0.99 prebeta 5 from 4. May 2009
