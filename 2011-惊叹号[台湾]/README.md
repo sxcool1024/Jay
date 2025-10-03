@@ -26,9 +26,9 @@
 11.	超跑女神	词：方文山	曲：林迈可	时长：02:36
 
 ------------
-![惊叹号]( https://www.nsaimg.com/2020/04/18/e491babb3b761.jpg  "惊叹号的介绍")
-![惊叹号]( https://www.nsaimg.com/2020/04/18/ebdf7ba5ec529.jpg  "惊叹号的介绍")
-![惊叹号]( https://www.nsaimg.com/2020/04/18/441a1589bb73b.jpg  "惊叹号的介绍")
+![back](https://image.acg.lol/file/2025/10/03/back09c6999eedbe33ab.jpg)
+![cover](https://image.acg.lol/file/2025/10/03/covere724f6de1bbaf526.jpg)
+![disc](https://image.acg.lol/file/2025/10/03/disc35a584a8be8c7fbe.jpg)
 
 ------------
 Exact Audio Copy V0.99 prebeta 5 from 4. May 2009
