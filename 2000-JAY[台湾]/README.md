@@ -112,7 +112,7 @@
 ------------
 
 ![nt15QW](https://i.im.ge/2025/10/02/nt15QW.back.jpeg  "jay的介绍")
-![nt1iRr.cover.jpeg](https://i.im.ge/2025/10/02/nt1iRr.cover.jpeg  "jay的介绍")
+![nt1iRr.cover.jpeg](https://i.im.ge/2025/10/02/nt1iRr.cover.jpg  "jay的介绍")
 ![nt1h9m.disc.jpeg](https://i.im.ge/2025/10/02/nt1h9m.disc.jpeg  "jay的介绍")
 ![nt19L0.1.jpeg](https://i.im.ge/2025/10/02/nt19L0.1.jpeg  "jay的介绍")
 ![nt1j3T.2.jpeg](https://i.im.ge/2025/10/02/nt1j3T.2.jpeg  "jay的介绍")
