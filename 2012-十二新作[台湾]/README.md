@@ -59,10 +59,9 @@ Jay.12的巧合与奥妙
 12.乌克丽丽
 
 ------------
-![十二新作]( https://www.nsaimg.com/2020/04/18/583c30b772edd.jpg  "十二新作的介绍")
-![十二新作]( https://www.nsaimg.com/2020/04/18/ab3ca75ed4d0f.jpg  "十二新作的介绍")
-![十二新作]( https://www.nsaimg.com/2020/04/18/302274cc0d27e.jpg  "十二新作的介绍")
-
+![back](https://image.acg.lol/file/2025/10/03/back2d65cf599580a43b.jpg)
+![cover](https://image.acg.lol/file/2025/10/03/cover22eaf52a0366f568.jpg)
+![disc](https://image.acg.lol/file/2025/10/03/disc0530a633cc85e5ad.jpg)
 # [专辑下载]( https://474b.com/file/25713053-438082441)
 <br>[【回到顶部】](#readme)[【返回目录】](/README.md)
 ###### 底
