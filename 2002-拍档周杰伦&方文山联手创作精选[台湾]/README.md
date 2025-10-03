@@ -76,8 +76,8 @@ CD: 拍当－周杰伦&方文山联手创作精选
 14. 反方向的钟 - 周杰伦    [0:04:17.55]
 
 ------------
-![拍档]( https://www.nsaimg.com/2020/04/18/9a55965b75c7d.jpg  "拍档的介绍")
-![拍档]( https://www.nsaimg.com/2020/04/18/c6f64e43b7780.jpg  "拍档的介绍")
+![back](https://image.acg.lol/file/2025/10/03/back71e3dc4bfbec56e1.jpg)
+![cover](https://image.acg.lol/file/2025/10/03/cover229cd2cba2b0eef8.jpg)
 
 # [专辑下载]( https://474b.com/file/25713053-438120764)
 <br>[【回到顶部】](#readme)[【返回目录】](/README.md)
