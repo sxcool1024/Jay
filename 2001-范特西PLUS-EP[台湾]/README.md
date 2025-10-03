@@ -29,19 +29,19 @@
 03.世界末日(Live) 
 
 ------------
-![范特西 PLUS-EP]( https://www.nsaimg.com/2020/04/18/41494300afa9c.jpg  "范特西 PLUS-EP的介绍")
-![范特西 PLUS-EP]( https://www.nsaimg.com/2020/04/18/0765cce62fd99.jpg  "范特西 PLUS-EP的介绍")
-![范特西 PLUS-EP]( https://www.nsaimg.com/2020/04/18/9ee880596b64d.jpg  "范特西 PLUS-EP的介绍")
-![范特西 PLUS-EP]( https://www.nsaimg.com/2020/04/18/2aed5e226ecf1.jpg  "范特西 PLUS-EP的介绍")
-![范特西 PLUS-EP]( https://www.nsaimg.com/2020/04/18/bc4ec0ea30f9f.jpg  "范特西 PLUS-EP的介绍")
-![范特西 PLUS-EP]( https://www.nsaimg.com/2020/04/18/0dfbc49a65b18.jpg  "范特西 PLUS-EP的介绍")
-![范特西 PLUS-EP]( https://www.nsaimg.com/2020/04/18/67c07d1bfed58.jpg  "范特西 PLUS-EP的介绍")
-![范特西 PLUS-EP]( https://www.nsaimg.com/2020/04/18/01e00282365ab.jpg  "范特西 PLUS-EP的介绍")
-![范特西 PLUS-EP]( https://www.nsaimg.com/2020/04/18/e92d96ebbfdcb.jpg  "范特西 PLUS-EP的介绍")
-![范特西 PLUS-EP]( https://www.nsaimg.com/2020/04/18/aa51afebc8cdd.jpg  "范特西 PLUS-EP的介绍")
-![范特西 PLUS-EP]( https://www.nsaimg.com/2020/04/18/ce8365ad16888.jpg  "范特西 PLUS-EP的介绍")
-![范特西 PLUS-EP]( https://www.nsaimg.com/2020/04/18/b7cb7cc3c9cd6.jpg  "范特西 PLUS-EP的介绍")
-![范特西 PLUS-EP]( https://www.nsaimg.com/2020/04/18/f7190cd9e1039.jpg  "范特西 PLUS-EP的介绍")
+![back](https://image.acg.lol/file/2025/10/03/backb149015afeb853cc.jpg)
+![cover](https://image.acg.lol/file/2025/10/03/covercdce91352e2396fb.jpg)
+![disc](https://image.acg.lol/file/2025/10/03/discdf15c09b491e5633.jpg)
+![内1](https://image.acg.lol/file/2025/10/03/156aef35db8cbd0cd.jpg)
+![内2](https://image.acg.lol/file/2025/10/03/21b4655858b464301.jpg)
+![内3](https://image.acg.lol/file/2025/10/03/3dc361c9662b83db1.jpg)
+![内4](https://image.acg.lol/file/2025/10/03/476899e04c5a01528.jpg)
+![内5](https://image.acg.lol/file/2025/10/03/517fce091ab008192.jpg)
+![内6](https://image.acg.lol/file/2025/10/03/6ff28dec9db4efcbb.jpg)
+![内7](https://image.acg.lol/file/2025/10/03/722ca37336ecea75c.jpg)
+![内8](https://image.acg.lol/file/2025/10/03/839f99d4f76bd4184.jpg)
+![内9](https://image.acg.lol/file/2025/10/03/9de63b04042ab8ea4.jpg)
+![内10](https://image.acg.lol/file/2025/10/03/105c00070c719eb55a.jpg)
 
 ------------
 Exact Audio Copy V0.99 prebeta 5 from 4. May 2009
