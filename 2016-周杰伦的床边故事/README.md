@@ -44,7 +44,7 @@
 10.	爱情废柴	词：周杰伦	曲：黄雨勋	时长：04:46
 
 ------------
-![周杰伦的床边故事]( https://www.nsaimg.com/2020/04/19/6c9ca0a992ec8.jpg  "周杰伦的床边故事的介绍")
+![Cover](https://image.acg.lol/file/2025/10/03/Cover.jpg)
 
 # [专辑下载]( https://474b.com/file/25713053-438130777)
 <br>[【回到顶部】](#readme)[【返回目录】](/README.md)
