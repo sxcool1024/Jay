@@ -111,36 +111,8 @@
 
 ------------
 
-![nt15QW](https://i.im.ge/2025/10/02/nt15QW.back.jpeg  "jay的介绍")
-![nt1iRr.cover.jpeg](https://i.im.ge/2025/10/02/nt1iRr.cover.jpg  "jay的介绍")
-![nt1h9m.disc.jpeg](https://i.im.ge/2025/10/02/nt1h9m.disc.jpeg  "jay的介绍")
-![nt19L0.1.jpeg](https://i.im.ge/2025/10/02/nt19L0.1.jpeg  "jay的介绍")
-![nt1j3T.2.jpeg](https://i.im.ge/2025/10/02/nt1j3T.2.jpeg  "jay的介绍")
-![nt16qL.3.jpeg](https://i.im.ge/2025/10/02/nt16qL.3.jpeg  "jay的介绍")
-![nt1mnc.4.jpeg](https://i.im.ge/2025/10/02/nt1mnc.4.jpeg  "jay的介绍")
-![nt1NPG.5.jpeg](https://i.im.ge/2025/10/02/nt1NPG.5.jpeg  "jay的介绍")
-![nt1Pkx.6.jpeg](https://i.im.ge/2025/10/02/nt1Pkx.6.jpeg  "jay的介绍")]
-![nt1yFa.7.jpeg](https://i.im.ge/2025/10/02/nt1yFa.7.jpeg  "jay的介绍")
-![nt1A9J.8.jpeg](https://i.im.ge/2025/10/02/nt1A9J.8.jpeg  "jay的介绍")
-![nt1CRy.9.jpeg](https://i.im.ge/2025/10/02/nt1CRy.9.jpeg  "jay的介绍")
-![nt1xTS.10.jpeg](https://i.im.ge/2025/10/02/nt1xTS.10.jpeg  "jay的介绍")
-![nt13Lz.11.jpeg](https://i.im.ge/2025/10/02/nt13Lz.11.jpeg  "jay的介绍")
-![nt1Y36.12.jpeg](https://i.im.ge/2025/10/02/nt1Y36.12.jpeg  "jay的介绍")
-![nt1b4F.13.jpeg](https://i.im.ge/2025/10/02/nt1b4F.13.jpeg  "jay的介绍")
-![nt1gqK.14.jpeg](https://i.im.ge/2025/10/02/nt1gqK.14.jpeg  "jay的介绍")
-![nt18t9.15.jpeg](https://i.im.ge/2025/10/02/nt18t9.15.jpeg  "jay的介绍")
-![nt1RzX.16.jpeg](https://i.im.ge/2025/10/02/nt1RzX.16.jpeg  "jay的介绍")
-![nt1ZF8.17.jpeg](https://i.im.ge/2025/10/02/nt1ZF8.17.jpeg  "jay的介绍")
-![nt1Kjh.18.jpeg](https://i.im.ge/2025/10/02/nt1Kjh.18.jpeg  "jay的介绍")
-![nt1VWM.19.jpeg](https://i.im.ge/2025/10/02/nt1VWM.19.jpeg  "jay的介绍")
-![nt1kTY.20.jpeg](https://i.im.ge/2025/10/02/nt1kTY.20.jpeg  "jay的介绍")
-![nt1zUD.21.jpeg](https://i.im.ge/2025/10/02/nt1zUD.21.jpeg  "jay的介绍")
-![nt1H34.22.jpeg](https://i.im.ge/2025/10/02/nt1H34.22.jpeg  "jay的介绍")
-![nt1p4C.23.jpeg](https://i.im.ge/2025/10/02/nt1p4C.23.jpeg  "jay的介绍")
-![nt1Jsq.24.jpeg](https://i.im.ge/2025/10/02/nt1Jsq.24.jpeg  "jay的介绍")
-![nt1ntp.25.jpeg](https://i.im.ge/2025/10/02/nt1ntp.25.jpeg  "jay的介绍")
-![nt14zP.26.jpeg](https://i.im.ge/2025/10/02/nt14zP.26.jpeg  "jay的介绍")
-![nt1GO1.27.jpeg](https://i.im.ge/2025/10/02/nt1GO1.27.jpeg  "jay的介绍")
+![109c3dec.jpg](https://imgly.net/i/2025/10/03/109c3dec.jpg)
+![08da72c3.jpg](https://imgly.net/i/2025/10/03/08da72c3.jpg)
 
 ------------
 
