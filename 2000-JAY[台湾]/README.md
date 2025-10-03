@@ -111,8 +111,36 @@
 
 ------------
 
-![109c3dec.jpg](https://imgly.net/i/2025/10/03/109c3dec.jpg)
-![08da72c3.jpg](https://imgly.net/i/2025/10/03/08da72c3.jpg)
+![back](https://image.acg.lol/file/2025/10/03/back.jpg)
+![cover](https://image.acg.lol/file/2025/10/03/cover.jpg)
+![disc](https://image.acg.lol/file/2025/10/03/disc.jpg)
+![内1](https://image.acg.lol/file/2025/10/03/14a36be5404fc495f.jpg)
+![内2](https://image.acg.lol/file/2025/10/03/236a5eac16ee10e57.jpg)
+![内3](https://image.acg.lol/file/2025/10/03/39b266afdc5f181c3.jpg)
+![内4](https://image.acg.lol/file/2025/10/03/416bd3528b9d240ba.jpg)
+![内5](https://image.acg.lol/file/2025/10/03/5ab265bad8d91cd7a.jpg)
+![内6](https://image.acg.lol/file/2025/10/03/61d94dd311b0acda6.jpg)
+![内7](https://image.acg.lol/file/2025/10/03/767ba00b889ceccc3.jpg)
+![内8](https://image.acg.lol/file/2025/10/03/85de475b44e3af6dc.jpg)
+![内9](https://image.acg.lol/file/2025/10/03/92a0c8d5353c00972.jpg)
+![内10](https://image.acg.lol/file/2025/10/03/106b736da0ed42865d.jpg)
+![内11](https://image.acg.lol/file/2025/10/03/11a8e4c949acebea29.jpg)
+![内12](https://image.acg.lol/file/2025/10/03/12ecdc1bae1911b81b.jpg)
+![内13](https://image.acg.lol/file/2025/10/03/13f2182cc05ad7b9c1.jpg)
+![内14](https://image.acg.lol/file/2025/10/03/1496a3cf87e0f784c7.jpg)
+![内15](https://image.acg.lol/file/2025/10/03/1530f774fe8fe157a2.jpg)
+![内16](https://image.acg.lol/file/2025/10/03/165a0cd2255b63221e.jpg)
+![内17](https://image.acg.lol/file/2025/10/03/17df104cf26c1793a1.jpg)
+![内18](https://image.acg.lol/file/2025/10/03/18f6c139666aebc93f.jpg)
+![内19](https://image.acg.lol/file/2025/10/03/197e3d72a74db00000.jpg)
+![内20](https://image.acg.lol/file/2025/10/03/205d615441075b951d.jpg)
+![内21](https://image.acg.lol/file/2025/10/03/216b58dd4835687f8a.jpg)
+![内22](https://image.acg.lol/file/2025/10/03/22e635aa05de4d0f88.jpg)
+![内23](https://image.acg.lol/file/2025/10/03/2354eda0335e2c1319.jpg)
+![内24](https://image.acg.lol/file/2025/10/03/245596a07dcfbe80c1.jpg)
+![内25](https://image.acg.lol/file/2025/10/03/259dc41de88e40577f.jpg)
+![内26](https://image.acg.lol/file/2025/10/03/26a9e9bc3700f62f10.jpg)
+![内27](https://image.acg.lol/file/2025/10/03/2777f55087d4485a25.jpg)
 
 ------------
 
