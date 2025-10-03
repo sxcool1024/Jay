@@ -42,7 +42,8 @@
 
 
 ------------
-![Cover](https://image.acg.lol/file/2025/10/03/Cover.jpg)
+![v2 41b380f89440cc4c3aa356ede5c01eec 1440w](https://image.acg.lol/file/2025/10/03/v2-41b380f89440cc4c3aa356ede5c01eec_1440w.jpg)
+![v2 24228a671600283dec6b56ecbffd8427 r](https://image.acg.lol/file/2025/10/03/v2-24228a671600283dec6b56ecbffd8427_r.jpg)
 
 # [专辑下载](https://url53.ctfile.com/f/25713053-8445073291-2bd552?p=1024)
 <br>[【回到顶部】](#readme)[【返回目录】](/README.md)
