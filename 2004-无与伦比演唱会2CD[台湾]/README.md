@@ -103,6 +103,8 @@ CD2
 ![内25](https://image.acg.lol/file/2025/10/04/25.jpg)
 ![内26](https://image.acg.lol/file/2025/10/04/26.jpg)
 ![内27](https://image.acg.lol/file/2025/10/04/27.jpg)
+![内16](https://image.acg.lol/file/2025/10/04/16a5e76c06765201f3.jpg)
+![内22](https://image.acg.lol/file/2025/10/04/22.jpg)
 
 ------------
 Exact Audio Copy V0.99 prebeta 5 from 4. May 2009
