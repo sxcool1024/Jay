@@ -31,7 +31,7 @@
 ![disc](https://image.acg.lol/file/2025/10/03/disc35a584a8be8c7fbe.jpg)
 
 ------------
-Exact Audio Copy V0.99 prebeta 5 from 4. May 2009
+Exact Audio Copy V0.99 prebeta 5 from 4. May 2011
 
 EAC 抓取日志文件从12. 十一月 2011, 23:15
 
