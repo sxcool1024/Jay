@@ -64,7 +64,7 @@
 ![内16](https://image.acg.lol/file/2025/10/03/16de18567c5157f853.jpg)
 
 ------------
-Exact Audio Copy V0.99 prebeta 5 from 4. May 2009
+Exact Audio Copy V0.99 prebeta 5 from 4. May 2010
 
 EAC 抓取日志文件从28. 十一月 2010, 19:11
 
