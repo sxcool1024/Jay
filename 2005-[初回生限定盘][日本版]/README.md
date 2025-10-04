@@ -76,10 +76,10 @@
 12.一路向北
 
 ------------
-![Initial J]( https://www.nsaimg.com/2020/04/18/5646590fe222c.jpg  "Initial J的介绍")
-![Initial J]( https://www.nsaimg.com/2020/04/18/a4a713a410a45.jpg  "Initial J的介绍")
-![Initial J]( https://www.nsaimg.com/2020/04/18/b35d554c4332a.jpg  "Initial J的介绍")
-![Initial J]( https://www.nsaimg.com/2020/04/18/d9d1dc2c653eb.jpg  "Initial J的介绍")
+![back](https://image.acg.lol/file/2025/10/04/back5c549c4b0c215550.jpg)
+![cover](https://image.acg.lol/file/2025/10/04/covera184ee5cf0677814.jpg)
+![cover1](https://image.acg.lol/file/2025/10/04/cover1.jpg)
+![disc](https://image.acg.lol/file/2025/10/04/disce57e62ee4d9ba605.jpg)
 
 ------------
 Exact Audio Copy V0.99 prebeta 5 from 4. May 2009
