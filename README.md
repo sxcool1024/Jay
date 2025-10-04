@@ -33,4 +33,4 @@
 * 14、[其它单曲](/其它单曲/README.md)
 ***
 # 电报交流群：https://t.me/sxcoolchannel
-[回到顶部](/#readme)
+[回到顶部](#专辑合集)
