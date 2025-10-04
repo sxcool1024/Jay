@@ -155,7 +155,7 @@ DVD曲目：
 [![back(1)](https://image.acg.lol/file/2025/10/04/back1.jpg)
 ![back](https://image.acg.lol/file/2025/10/04/back63f60406e7a1747b.jpg)
 ![cover(1)](https://image.acg.lol/file/2025/10/04/cover10d8cf07ecdf76d1a.jpg)
-![cover](https://image.acg.lol/file/2025/10/04/cover0e11a93e50b82819.jpg)](https://url53.ctfile.com/f/25713053-8445403135-5bdfc3?p=1024)
+![cover](https://image.acg.lol/file/2025/10/04/cover0e11a93e50b82819.jpg)]
 
 ------------
 Exact Audio Copy V1.0 beta 2 from 29. April 2011
@@ -313,7 +313,7 @@ AccurateRip总结报告
 
 日志文件结束
 
-# [专辑下载]( https://474b.com/file/25713053-438129262)
+# [专辑下载](https://url53.ctfile.com/f/25713053-8445403135-5bdfc3?p=1024)
 <br>[【回到顶部】](#readme)[【返回目录】](/README.md)
 ###### 底
 
