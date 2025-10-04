@@ -1,4 +1,5 @@
-[【一键到底】](#底)[【返回目录】](/README.md)
+[【一键到底】](#D)[【返回目录】](/README.md#M)
+<a id="T"></a>
 
 专辑名称：哎呦，不错哦
 
@@ -59,5 +60,5 @@
 ![v2 c6aea4e9153fa0dbe4cc977cce62586f 1440w](https://image.acg.lol/file/2025/10/03/v2-c6aea4e9153fa0dbe4cc977cce62586f_1440w.png)
 
 # [专辑下载](https://url53.ctfile.com/f/25713053-8445107306-2c36db?p=1024)
-<br>[【回到顶部】](#readme)[【返回目录】](/README.md)
-###### 底
+<br>[【回到顶部】](#T)[【返回目录】](/README.md#M)
+<a id="D"></a>
