@@ -321,6 +321,6 @@ End of status report
 
 [54c5af38] (3/3) Accurately ripped
 
-# [专辑下载]( https://474b.com/file/25713053-438130337)
+# [专辑下载](https://url53.ctfile.com/f/25713053-8445426150-9d36ac?p=1024)
 <br>[【回到顶部】](#readme)[【返回目录】](/README.md)
 ###### 底
