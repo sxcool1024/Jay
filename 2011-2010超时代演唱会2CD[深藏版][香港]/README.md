@@ -152,10 +152,10 @@ DVD曲目：
 ※特別收錄－幕後花絮(約27min) 
 
 ------------
-![back(1)](https://image.acg.lol/file/2025/10/04/back1.jpg)
+[![back(1)](https://image.acg.lol/file/2025/10/04/back1.jpg)
 ![back](https://image.acg.lol/file/2025/10/04/back63f60406e7a1747b.jpg)
 ![cover(1)](https://image.acg.lol/file/2025/10/04/cover10d8cf07ecdf76d1a.jpg)
-![cover](https://image.acg.lol/file/2025/10/04/cover0e11a93e50b82819.jpg)
+![cover](https://image.acg.lol/file/2025/10/04/cover0e11a93e50b82819.jpg)](https://url53.ctfile.com/f/25713053-8445403135-5bdfc3?p=1024)
 
 ------------
 Exact Audio Copy V1.0 beta 2 from 29. April 2011
