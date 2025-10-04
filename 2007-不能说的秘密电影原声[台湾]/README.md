@@ -67,9 +67,9 @@
 25. 周杰伦 - [不能说的秘密 #25] 不能说的秘密
 
 ------------
-![不能说的秘密]( https://www.nsaimg.com/2020/04/18/3757d7a2ce55d.jpg  "不能说的秘密的介绍")
-![不能说的秘密]( https://www.nsaimg.com/2020/04/18/430cc789508fa.jpg  "不能说的秘密的介绍")
-![不能说的秘密]( https://www.nsaimg.com/2020/04/18/6245ef465ffbb.jpg  "不能说的秘密的介绍")
+![back](https://image.acg.lol/file/2025/10/04/back0c478273aa197ed4.jpg)
+![cover](https://image.acg.lol/file/2025/10/04/cover81b5ac1d2baba3f6.jpg)
+![disc](https://image.acg.lol/file/2025/10/04/disc39ed8ad7cb678754.jpg)
 
 ------------
 Exact Audio Copy V0.99 prebeta 5 from 4. May 2009
