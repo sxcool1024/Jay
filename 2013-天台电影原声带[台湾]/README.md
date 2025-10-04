@@ -1,4 +1,5 @@
-[【一键到底】](#底)[【返回目录】](/README.md)
+[【一键到底】](#D)[【返回目录】](/README.md#Y)
+<a id="T"></a>
 
 专辑名称：天台电影原声带THE ROOFTOP A Jay Chou Film OST
 
@@ -322,5 +323,5 @@ End of status report
 [54c5af38] (3/3) Accurately ripped
 
 # [专辑下载](https://url53.ctfile.com/f/25713053-8445426150-9d36ac?p=1024)
-<br>[【回到顶部】](#readme)[【返回目录】](/README.md)
-###### 底
+<br>[【回到顶部】](#T)[【返回目录】](/README.md#Y)
+<a id="D"></a>
