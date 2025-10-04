@@ -152,8 +152,10 @@ DVD曲目：
 ※特別收錄－幕後花絮(約27min) 
 
 ------------
-![2010超时代演唱会]( https://www.nsaimg.com/2020/04/19/fc38ef9d74f49.jpg  "2010超时代演唱会的介绍")
-![2010超时代演唱会]( https://www.nsaimg.com/2020/04/19/04bcc38c6366b.jpg  "2010超时代演唱会的介绍")
+![back(1)](https://image.acg.lol/file/2025/10/04/back1.jpg)
+![back](https://image.acg.lol/file/2025/10/04/back63f60406e7a1747b.jpg)
+![cover(1)](https://image.acg.lol/file/2025/10/04/cover10d8cf07ecdf76d1a.jpg)
+![cover](https://image.acg.lol/file/2025/10/04/cover0e11a93e50b82819.jpg)
 
 ------------
 Exact Audio Copy V1.0 beta 2 from 29. April 2011
