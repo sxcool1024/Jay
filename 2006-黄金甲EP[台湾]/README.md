@@ -25,22 +25,22 @@
 2. 菊花台 
 
 ------------
-![《黄金甲》]( https://www.nsaimg.com/2020/04/18/d9163943008d5.jpg  "《黄金甲》的介绍")
-![《黄金甲》]( https://www.nsaimg.com/2020/04/18/82b34d8e35fd0.jpg  "《黄金甲》的介绍")
-![《黄金甲》]( https://www.nsaimg.com/2020/04/18/f97c8ea1da25f.jpg  "《黄金甲》的介绍")
-![《黄金甲》]( https://www.nsaimg.com/2020/04/18/f660927fa540c.jpg  "《黄金甲》的介绍")
-![《黄金甲》]( https://www.nsaimg.com/2020/04/18/a73b8761e8118.jpg  "《黄金甲》的介绍")
-![《黄金甲》]( https://www.nsaimg.com/2020/04/18/d04ba9f179b92.jpg  "《黄金甲》的介绍")
-![《黄金甲》]( https://www.nsaimg.com/2020/04/18/68e90b153aae1.jpg  "《黄金甲》的介绍")
-![《黄金甲》]( https://www.nsaimg.com/2020/04/18/c17d7e7ceadf5.jpg  "《黄金甲》的介绍")
-![《黄金甲》]( https://www.nsaimg.com/2020/04/18/f02ce2de00ff5.jpg  "《黄金甲》的介绍")
-![《黄金甲》]( https://www.nsaimg.com/2020/04/18/fa2182309582a.jpg  "《黄金甲》的介绍")
-![《黄金甲》]( https://www.nsaimg.com/2020/04/18/4a9564aef7cec.jpg  "《黄金甲》的介绍")
-![《黄金甲》]( https://www.nsaimg.com/2020/04/18/6dd1d29e92287.jpg  "《黄金甲》的介绍")
-![《黄金甲》]( https://www.nsaimg.com/2020/04/18/6cff36ec9bd9e.jpg  "《黄金甲》的介绍")
-![《黄金甲》]( https://www.nsaimg.com/2020/04/18/b6ec38cb8137a.jpg  "《黄金甲》的介绍")
-![《黄金甲》]( https://www.nsaimg.com/2020/04/18/860cb946028e3.jpg  "《黄金甲》的介绍")
-![《黄金甲》]( https://www.nsaimg.com/2020/04/18/b9eeffc9a114c.jpg  "《黄金甲》的介绍")
+![back](https://image.acg.lol/file/2025/10/04/backf4a4c5fcf930b14c.jpg)
+![cover](https://image.acg.lol/file/2025/10/04/cover9096c856845c3281.jpg)
+![disc](https://image.acg.lol/file/2025/10/04/discc81ebca7a1767fc8.jpg)
+![内1](https://image.acg.lol/file/2025/10/04/1dafe4a3a2fbd6bc0.jpg)
+![内2](https://image.acg.lol/file/2025/10/04/2bbdd5acddbbf0f8f.jpg)
+![内3](https://image.acg.lol/file/2025/10/04/3106bb7c81bc34d0f.jpg)
+![内4](https://image.acg.lol/file/2025/10/04/492d01c7f13d205e4.jpg)
+![内5](https://image.acg.lol/file/2025/10/04/5af0f9dd8630f1c2c.jpg)
+![内6](https://image.acg.lol/file/2025/10/04/6ebc1f27fa55f1ca1.jpg)
+![内7](https://image.acg.lol/file/2025/10/04/71edc4376e7fccd7e.jpg)
+![内8](https://image.acg.lol/file/2025/10/04/89637769d442be472.jpg)
+![内9](https://image.acg.lol/file/2025/10/04/98cd643bb7591989c.jpg)
+![内10](https://image.acg.lol/file/2025/10/04/10fe1473e2565ebf09.jpg)
+![内11](https://image.acg.lol/file/2025/10/04/11f212d9531bffa2e7.jpg)
+![内12](https://image.acg.lol/file/2025/10/04/12eef244f30906eb5c.jpg)
+![内13](https://image.acg.lol/file/2025/10/04/132b7bf14a5e629d8c.jpg)
 
 ------------
 Exact Audio Copy V0.99 prebeta 5 from 4. May 2009
