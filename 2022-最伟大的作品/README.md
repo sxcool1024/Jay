@@ -1,4 +1,5 @@
-[【一键到底】](#底)[【返回目录】](/README.md)
+[【一键到底】](#D)[【返回目录】](/README.md#M)
+<a id="T"></a>
 
 专辑名称：最伟大的作品
 
@@ -46,6 +47,6 @@
 ![v2 24228a671600283dec6b56ecbffd8427 r](https://image.acg.lol/file/2025/10/03/v2-24228a671600283dec6b56ecbffd8427_r.jpg)
 
 # [专辑下载](https://url53.ctfile.com/f/25713053-8445108268-da5b82?p=1024)
-<br>[【回到顶部】](#readme)[【返回目录】](/README.md)
-###### 底
+<br>[【回到顶部】](#T)[【返回目录】](/README.md#M)
+<a id="D"></a>
 
