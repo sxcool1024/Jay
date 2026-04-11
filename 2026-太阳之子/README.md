@@ -44,7 +44,7 @@
 ![2](https://image.acg.lol/file/2026/04/07/274d3403d5bea71ac.jpg)
 ![3](https://image.acg.lol/file/2026/04/07/3f415a0e6378e46c0.jpg)
 
-# [专辑下载](https://url53.ctfile.com/f/25713053-8788709898-ea32fa?p=1024)
+# [专辑下载](https://url53.ctfile.com/f/25713053-8790488062-15227a?p=1024)
 <br>[【回到顶部】](#T)[【返回目录】](/README.md#M)
 <a id="D"></a>
 
